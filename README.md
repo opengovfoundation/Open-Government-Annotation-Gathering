@@ -1,4 +1,4 @@
-Open Government + Open Annotation Gathering Agenda
+#### **Open Government + Open Annotation Gathering Agenda**
 Hosted at: FastCase, 711 D Street, NW Suite #200
 
 10/4/2013 
